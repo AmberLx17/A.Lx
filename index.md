@@ -1,2 +1,3 @@
 ## Amber Laundreaux
-![Ambers headshot](Screenshotfortribalid.png)
+
+<img src="Screenshotfortribalid.png" />
