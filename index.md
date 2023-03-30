@@ -7,7 +7,7 @@
 ## Contact Info
 
 * Email: <a href="mailto:alaundreaux28729@olc.edu">**Amber's Email**</a>
-* GitHub: <a href="https://github.com/AmberLx17">**Amber's GitHub**</a>
+* GitHub: <a href="https://github.com/AmberLx17" target="_blank">**Amber's GitHub**</a>
 
 ***
 
