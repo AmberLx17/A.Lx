@@ -15,4 +15,4 @@
 
 
 
-<img alt-text="lll" src="IM" width="50%" />
+<img alt-text="lauryns senior pic" src="Laurynhat.jpg" width="25%" />
