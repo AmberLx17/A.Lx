@@ -12,7 +12,7 @@
 ***
 
 ## BIO
-
+H
 
 
 <img alt-text="lauryns senior pic" src="Laurynhat.jpg" width="25%" />
