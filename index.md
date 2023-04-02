@@ -12,7 +12,7 @@
 ***
 
 ## BIO
-Han mitakuyapi, Caje mitawaki Amber laundreaux emaciyapi ksto.  Wanbli Paha el wati. Cante waste nape ciyuzape!
+Han mitakuyapi, caje mitawaki Amber laundreaux emaciyapi ksto.  Wanbli Paha el wati na cante waste nape ciyuzape!
 
 Hello my relatives, my name is Amber Laundreaux.  I live in Eagle Butte, SD and I shake your hand with a good heart!
 
