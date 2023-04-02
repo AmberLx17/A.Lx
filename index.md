@@ -13,6 +13,7 @@
 
 ## BIO
 Han mitakuyapi, Caje mitawaki Amber laundreaux emaciyapi ksto.  Wanbli Paha el wati. Cante waste nape ciyuzape!
+
 Hello my relatives, my name is Amber Laundreaux.  I live in Eagle Butte, SD and I shake your hand with a good heart!
 
 I am employed with the Cheyenne River Sioux Tribe Youth Diabetes Prevention Program since 2017.  We fight every day to prevent our youth from getting diabetes by giving them information on ways to prevent diabetes, we plan activities with our schools or communities, we hold lunch and learns with classrooms, we host our yearly school screenings. We are located in Eagle Butte, SD  and cover most of Cheyenne River Sioux Tribal Schools such as Takini, Dupree, Laplant, Windswept Academy and Cheyenne Eagle Butte schools.
